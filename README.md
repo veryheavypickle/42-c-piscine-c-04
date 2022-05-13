@@ -1,1 +1,1 @@
-![biggie cheese dies in driveby](https://www.google.com/url?sa=i&url=https%3A%2F%2Fes-es.facebook.com%2Fpages%2Fcategory%2FArtist%2F103664578075498%2F&psig=AOvVaw028jNf2_bBffBUPVKcjGMa&ust=1652552807789000&source=images&cd=vfe&ved=0CAkQjRxqFwoTCKiXxLON3fcCFQAAAAAdAAAAABAE)
+![biggie cheese dies in driveby](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fimageproxy.ifunny.co%2Fcrop%3Ax-20%2Cresize%3A640x%2Cquality%3A90x75%2Fimages%2Ff07c8f839d910675ca512eed0a1bccff453c77ec83c8255ab4cb1eabaddf3d59_1.jpg&f=1&nofb=1)
